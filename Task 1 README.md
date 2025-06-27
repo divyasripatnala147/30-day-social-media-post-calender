@@ -1,4 +1,3 @@
-![1000010081](https://github.com/user-attachments/assets/db378d7c-2ab9-48c0-9ed4-58dfa8b84e42)
 Digitalmarketing
 
 **company**: CODTECH IT SOLUTIONS
